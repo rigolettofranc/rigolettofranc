@@ -6,4 +6,4 @@ I love opera, especially [Rigoletto](https://youtu.be/8A3zetSuYRg) and The Phant
 
 Please read the [contribution guidelines](https://github.com/rigolettofranc/Contribution) carefully before you issue a pull request. They are a set of procedures to ensure your safety from harrasement by CCP and its sympathizers.
 
-Follow me on [rigoletto.me](https://rigoletto.me) and my [YouTube channel](https://www.youtube.com/channel/UC4ZuhbaBzd8GODBbiSL_K_Q).
+Follow me on [rigoletto.me](https://rigoletto.me) ,[YouTube](https://www.youtube.com/channel/UC4ZuhbaBzd8GODBbiSL_K_Q), and [Quora](https://www.quora.com/profile/Rigoletto-Francis).
