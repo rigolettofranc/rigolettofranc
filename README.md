@@ -1,4 +1,4 @@
-![Uyghurs Lives Matter](./Uyghur-Lives-Matter.png)
+![Uyghurs Lives Matter Banner](./Uyghur-Lives-Matter-v2.png)
 
 ### Hi there 👋
 
