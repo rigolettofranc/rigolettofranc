@@ -1,4 +1,4 @@
-[![Uyghurs Lives Matter Banner](./Uyghurs-Lives-Matter-v3.png)](https://www.facebook.com/uyghurslivesmatter)
+[![Uyghurs Lives Matter Banner](./Uyghurs-Lives-Matter-v3.png)](https://uyghurslivesmatter.org/)
 
 ### Hi there 👋
 
@@ -6,7 +6,7 @@ I love opera, especially [Rigoletto](https://youtu.be/8A3zetSuYRg), and many thi
 
 [Take down the CCP](https://youtu.be/r_1fruTLJBY). 👊👊👊
 
-[Uyghurs Lives Matter](https://www.facebook.com/uyghurslivesmatter). ✊✊✊
+[Uyghurs Lives Matter](https://uyghurslivesmatter.org/). ✊✊✊
 
 Please read the [contribution guidelines](https://github.com/rigolettofranc/Contribution) carefully before you issue a pull request. They are a set of procedures to ensure your safety from harrasement by CCP, Wumao (50-cents army), and its sympathizers.
 
