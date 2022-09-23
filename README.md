@@ -10,4 +10,4 @@ I love opera, especially [Rigoletto](https://youtu.be/8A3zetSuYRg), and many thi
 
 Please read the [contribution guidelines](https://github.com/rigolettofranc/Contribution) carefully before you issue a pull request. They are a set of procedures to ensure your safety from harrasement by CCP, Wumao (50-cents army), and its sympathizers.
 
-Follow me on [rigoletto.me](https://rigoletto.me), [FB](https://www.facebook.com/rigolettofranc/), [Twitter](https://twitter.com/rigolettofranc), [YouTube](https://www.youtube.com/channel/UC4ZuhbaBzd8GODBbiSL_K_Q), and [Quora](https://www.quora.com/profile/Rigoletto-Francis).
+Follow me on [Twitter](https://twitter.com/rigolettofranc), [YouTube](https://www.youtube.com/channel/UC4ZuhbaBzd8GODBbiSL_K_Q), and [Quora](https://www.quora.com/profile/Rigoletto-Francis).
