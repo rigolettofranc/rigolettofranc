@@ -4,7 +4,7 @@
 
 I love opera, especially [Rigoletto](https://youtu.be/8A3zetSuYRg), and many things that have given me a joyful life. But first, let's [take down the CCP](https://youtu.be/r_1fruTLJBY). This channel is dedicated to all those suffering from the suppression of the brutal CCP regime 🇨🇳, a trend that is exacerbated by Uyghur's concentration camps in Xinjiang and brutal police crackdowns in Hong Kong. In this darkest moment, let us stand in solidarity with the Uyghurs, HongKongers, Tibetans, Mongolians, and Taiwanese, for them the sky is darkest before the dawn.
 
-[Take down the CCP](https://youtu.be/r_1fruTLJBY). 👊👊👊
+[Take down the CCP](https://youtu.be/DXbwKf-2iB8). 👊👊👊
 
 [Uyghurs Lives Matter](https://uyghurslivesmatter.org/). ✊✊✊
 
